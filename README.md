@@ -1,5 +1,6 @@
+
 <p align="center">
-<img src="https://adriansblinkiecollection.neocities.org/v81.gif"/>
+<img src="https://adriansblinkiecollection.neocities.org/v81.gif"/> 
 </p>
   
 <p align="center">
@@ -27,4 +28,7 @@ jjk and sig enthusiast
 kai yume, nonsharing on pt, double or cosplay = hide!
 </sup>
 </p>
+
+![](https://komarev.com/ghpvc/?username=JuunpeiYoshino&style=flat-square)
+
 
