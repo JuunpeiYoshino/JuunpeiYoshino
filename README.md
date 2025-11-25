@@ -1,34 +1,32 @@
+<img align="left" src="https://i.postimg.cc/yNqPL21g/pony-town-ji-ye-shun-ping-Junpei-c-h-trot-name-ponyplush-5x.gif" alt="My Image" width="500">
 
-<p align="center">
-<img src="https://adriansblinkiecollection.neocities.org/v81.gif"/> 
-</p>
-  
-<p align="center">
-<sup>
-strawpage is a wip!!
 
-<p align="center">
-<sup>
+![](https://komarev.com/ghpvc/?username=JuunpeiYoshino&style=plastic)
+
+
+<br/>
+<br/>
+
+strawpage is a wip!! 
+<br/>
+
 any/all - minor - bipoc - artist
 
 
 
+<br/>
 
 
+
+jjk and sig enthusiast
 
 <br/>
-<p align="center">
-<sup>
-jjk and sig enthusiast
-</sup>
-</p>
 
-<p align="center">
-<sup>
 kai yume, nonsharing on pt, double or cosplay = hide!
-</sup>
-</p>
+<br/>
+<br/>
 
-![](https://komarev.com/ghpvc/?username=JuunpeiYoshino&style=flat-square)
+
+
 
 
