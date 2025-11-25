@@ -3,15 +3,16 @@
 <br/><br/><br/>
 <br/><br/><br/><br/>
 ![](https://komarev.com/ghpvc/?username=JuunpeiYoshino&style=plastic)
-
+<br/><br/>
+<img src="https://adriansblinkiecollection.neocities.org/v77.gif">
 
 <br/>
-<br/>
+
 
 strawpage is a wip!! 
 <br/>
 
-any/all - minor - bipoc - artist
+any/all - minor - bipoc - artist <img src="https://64.media.tumblr.com/583272722344e600f3daff2b3afbafa7/dac92cb0afbc0951-4c/s75x75_c1/74a5321def911a12b2223bb09ff14a89ef063541.gifv">
 
 
 
