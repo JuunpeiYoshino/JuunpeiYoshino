@@ -4,7 +4,13 @@
   
 <p align="center">
 <sup>
+strawpage is a wip!!
+
+<p align="center">
+<sup>
 any/all - minor - bipoc - artist
+
+
 
 
 
