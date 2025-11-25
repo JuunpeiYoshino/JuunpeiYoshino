@@ -1,7 +1,7 @@
 <img align="left" src="https://i.postimg.cc/yNqPL21g/pony-town-ji-ye-shun-ping-Junpei-c-h-trot-name-ponyplush-5x.gif" alt="My Image" width="500">
 
 <br/><br/><br/>
-<br/><br/><br/><br/>
+<br/><br/>
 ![](https://komarev.com/ghpvc/?username=JuunpeiYoshino&style=plastic)
 <br/><br/>
 <img src="https://adriansblinkiecollection.neocities.org/v77.gif">
